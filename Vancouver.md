@@ -21,7 +21,7 @@
 
 * **Must See!!**
 
-* Rainforest 15 minutes away from DTV
+* Rainforest 15 minutes away from downtown Vancouver
 
 * Admission: USD 31.36 ([more details here](http://www.viator.com/tours/Vancouver/Capilano-Suspension-Bridge-Admission/d616-3584ADM?aid=tripen1&refid=VX5U8woQIUYAAF3xbRwAAAAN))
 
