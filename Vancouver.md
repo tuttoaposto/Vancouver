@@ -1,6 +1,6 @@
 #Day 1
 
-#### Grouse Grind Hike ([Yelp link] (http://www.yelp.com/biz/grouse-grind-north-vancouver))
+#### Grouse Grind Hike ([Yelp link!] (http://www.yelp.com/biz/grouse-grind-north-vancouver))
 
 * Hike to the submit to see BEARS!!!
 
